@@ -1,5 +1,5 @@
 # Ingredients
 - peas
-- onions
+- Spring onions
 - Potato
 # Instructions
